@@ -31,4 +31,4 @@
 平台支持手机、平板、PC等多种设备，无论你身处何地，随时都可以通过不同的设备观看日本AV。我们为不同设备优化了播放技术，保证你在任何终端上都能获得极速加载和高清播放体验，方便你在任何时间享受最优质的娱乐内容。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/xlin156/345667 ）</span>
